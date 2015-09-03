@@ -24,4 +24,4 @@ Les deux variantes sont soit une caisse devant laquelle le consommateur se charg
 Le gros avantage de ces deux variantes sont de «simplifier l’acte d’achat» et de «diminuer le temps d’attente aux caisses». Cette démarche donne un aspect ludique au consommateur qui se prête volontiers au jeu. 
 <br/>**Le consommateur devient donc acteur** et d’une certaine manière un «employé» de la grande surface, le temps de ses courses.
 #Conclusion
-Les maîtres mots sont *Rapidité*, *simplicité* et *efficacité* quelque soit le type de commerce.
+Les maîtres mots sont *rapidité*, *simplicité*, *qualité* et *efficacité* quelque soit le type de commerce.
